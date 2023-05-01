@@ -1,6 +1,6 @@
 # EndTermEvalMad
 
-Pankaj 20CSU076
+Pankaj 20CSU076 and Rishab Bhel 20CSU324
 
 ![image](https://user-images.githubusercontent.com/94001076/235431995-b0d4756d-6cc0-4e70-a85d-41a472dd3a12.png)
 
