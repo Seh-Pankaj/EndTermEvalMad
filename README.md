@@ -10,4 +10,6 @@ Pankaj 20CSU076 and Rishab Bhel 20CSU324
 
 ![image](https://user-images.githubusercontent.com/94001076/235435267-639e76d0-c6c2-48f6-90a3-8360aee73bfa.png)
 
-![image](https://user-images.githubusercontent.com/94001076/235434813-23b06455-342a-453c-8a4b-572f4d6d8832.png)
+![image](https://user-images.githubusercontent.com/94001076/235500690-b88c4167-2642-4368-a324-4c3fd00bb7f0.png)
+
+![image](https://user-images.githubusercontent.com/94001076/235500741-a0cddf72-a9f7-45af-8630-d585fbcc1f74.png)
